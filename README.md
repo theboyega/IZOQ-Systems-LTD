@@ -1,1 +1,0 @@
-# IZOQ-Systems-LTD
